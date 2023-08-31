@@ -1,1 +1,1 @@
-This one is self-explanatory, my collection of Wallpapers, mostly gruvbox wallpapers.
+This one is self-explanatory, my collection of Wallpapers.
