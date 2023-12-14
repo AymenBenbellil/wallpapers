@@ -1,1 +1,1 @@
-# My collection of simple, relaxing and chill wallpapers.
+- My collection of simple, relaxing and chill wallpapers.
